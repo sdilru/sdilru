@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sdilru
+- 🌱 I’m currently learning Electrical and Electronic Technology
+- 💞️ I’m looking to collaborate on AI
+- 😄 Pronouns: She/her
